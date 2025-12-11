@@ -1,5 +1,4 @@
 # Extract-from-The-State-and-Revolution
-
 ## I – Class society and the State
 What is happening today to the doctrine of Marx is what has often happened in history to the doctrines of revolutionary thinkers [...]. The ruling classes have always rewarded the great revolutionaries, during their lifetimes, with incessant persecutions [...]. But, after death, an attempt is made to transform them into harmless icons, [...] to gird their name with a certain halo of glory, as a "consolation" and mystification of the oppressed classes, while their revolutionary doctrine is emptied of its content [...].
 This being the case, and since the distortions of Marxism have spread unprecedentedly, our task is first of all to re-establish Marx's true doctrine of the state.
