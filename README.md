@@ -1,7 +1,6 @@
 # Extract-from-The-State-and-Revolution
 
 ## I – Class society and the State
-
 What is happening today to the doctrine of Marx is what has often happened in history to the doctrines of revolutionary thinkers [...]. The ruling classes have always rewarded the great revolutionaries, during their lifetimes, with incessant persecutions [...]. But, after death, an attempt is made to transform them into harmless icons, [...] to gird their name with a certain halo of glory, as a "consolation" and mystification of the oppressed classes, while their revolutionary doctrine is emptied of its content [...].
 This being the case, and since the distortions of Marxism have spread unprecedentedly, our task is first of all to re-establish Marx's true doctrine of the state.
 "The State [...] it is [...] a product of society having reached a certain stage of development, it is the confession that this society [...] has split into irreconcilable antagonisms which it is powerless to eliminate. But in order that these antagonisms, these classes with conflicting economic interests, may not destroy themselves and society in a sterile struggle, the need arises for a power that is apparently above society, that mitigates the conflict [...]; and this power which emanates from society, but which places itself above it and which is increasingly alienated from it, is the State. […] The state is the product and manifestation of irreconcilable antagonisms between classes."
