@@ -1,9 +1,9 @@
 # Summary of The State and Revolution
-As long as the great revolutionaries are alive, the ruling classes always reward them with incessant persecutions. As soon as they die, an attempt is made to transform them into harmless icons to console and mystify the oppressed classes while emptying their doctrine of its revolutionary content. The bourgeoisie and the opportunists within the working-class movement are now agreeing to subject Marxism to such treatment, distorting its revolutionary soul and exalting what seems acceptable to the bourgeoisie.
+As long as the great revolutionaries are alive, the ruling classes always reward them with incessant persecutions. As soon as they die, attempts are made to transform them into harmless icons to console and mystify the oppressed classes while emptying their doctrine of its revolutionary content. The bourgeoisie and the opportunists within the working-class movement are now plotting to subject Marxism to such treatment, distorting its revolutionary soul and exalting what seems acceptable to the bourgeoisie.
 
 Since the distortions of Marxism have spread unprecedentedly, it is our task to re-establish Marx's true doctrine of the state.
 ##
-The discovery of agriculture and the urban revolution made possible the stable production of an economic surplus. Once this certain stage of development has been reached, society is divided into classes with irreconcilable economic interests; a class society is formed in which a small class of exploiters can systematically appropriate the labour-power of a large class of exploited. In order that the antagonistic classes may not destroy themselves and society in a sterile struggle, the necessity arises of a power which is, in appearance, above society and which can therefore mitigate the conflict between the classes. That power is the state.
+The discovery of agriculture and the urban revolution made possible the stable production of an economic surplus. Once this certain stage of development has been reached, society is divided into classes with irreconcilable economic interests; a class society is formed in which a small class of exploiters can systematically appropriate the labour-power of a large class of exploited. In order that the antagonistic classes may not destroy themselves and society in a sterile struggle, arises the necessity of a power which is, apparently, above society and which can therefore mitigate the conflict between the classes. This power is the state.
 
 The state is the product and manifestation of irreconcilable antagonisms between classes, and its presence is necessary to the extent that class antagonisms cannot be reconciled. If the reconciliation of classes were possible, the state could neither arise nor continue to exist.
 ##
@@ -15,11 +15,11 @@ The overthrow of the bourgeoisie is only possible through the transformation of 
 ##
 The state is the means by which the ruling class of a society exercises its dictatorship over it. The bourgeois states are a dictatorship of the bourgeoisie. The transition from capitalism to communism will inevitably be the dictatorship of the proletariat. The ruling class of society will no longer be the exploiting bourgeois minority, but the exploited proletarian majority; it will no longer be the oppressed, but the oppressors, who will be excluded from politics.
 
-Only those who recognize both the existence of the class struggle and the necessity of putting an end to class oppression by means of the revolutionary dictatorship of the proletariat are Marxists.
+Only those who recognize both the existence of the class struggle and the necessity of putting an end to class oppression by means of the revolutionary dictatorship of the proletariat, are Marxists.
 
 Today's rampant opportunism glosses over the question of class dictatorship and educates socialists in such a way as to make them only the representatives of the best-paid workers; in this way it deprives them of the theoretical foundations necessary to achieve the radical suppression of all exploitation.
 ##
-Any state, in order to maintain itself, needs special detachments of armed men who, by profession, protect the interests of the ruling class and maintain its power. The task of these armed detachments is to supervise, repress and imprison those who rebel against their oppression and those among the individual members of the ruling class who are willing to help them.
+Any state, in order to maintain itself, needs special detachments of armed men who, by profession, protect the interests of the ruling class and maintain firm its power. The task of these armed detachments is to supervise, repress and imprison those who rebel against their oppression and those among the individual members of the ruling class who are willing to help them.
 
 Centralized state power, proper to bourgeois society, appeared in the period of the bourgeois revolution in France. The most characteristic institutions of this state machine are: the bureaucracy, the standing army and the police. The working class learns to know them the hard way.
 
@@ -63,9 +63,9 @@ In socialism there will still be injustices and differences of wealth, but the e
 
 "He who does not work shall not eat" and "At equal quantity of work, equal quantity of products" are the two principles that can be realized in socialism. But this is not yet communism: there is still bourgeois law which attributes to unequal people, and for a very unequal quantity of labour, an equal quantity of products.
 ##
-A partial permanence of bourgeois law in a state in which the bourgeoisie is no longer in power is an inevitable drawback in socialism, since it cannot be thought that men will learn, overnight, to work for society without any legal norms.
+A partial permanence of bourgeois law in a state in which the bourgeoisie is no longer in power is an inevitable drawback in socialism since it cannot be thought that men will learn, overnight, to work for society without any legal norms.
 
-Bourgeois law, like all law, presupposes inequality. In fact, every right consists in the application of a single rule to different people, who are neither identical nor equal.
+Bourgeois law, like all law, presupposes inequality. In fact, every law consists in the application of a single rule to different people, who are neither identical nor equal.
 
 The law, instead of being equal, should in fact be unequal.
 
