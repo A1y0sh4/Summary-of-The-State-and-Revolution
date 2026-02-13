@@ -21,7 +21,7 @@ Today's rampant opportunism glosses over the question of class dictatorship and 
 ##
 Any state, in order to maintain itself, needs special detachments of armed men who, by profession, protect the interests of the ruling class and maintain firm its power. The task of these armed detachments is to supervise, repress and imprison those who rebel against their oppression and those among the individual members of the ruling class who are willing to help them.
 
-Centralized state power, proper to bourgeois society, appeared in the period of the bourgeois revolution in France. The most characteristic institutions of this state machine are: the bureaucracy, the standing army and the police. The working class learns to know them the hard way.
+Centralized state power appeared in the period of the bourgeois revolution in France. The most characteristic institutions of this state machine are: the bureaucracy, the standing army and the police. The working class learns to know them the hard way.
 
 The Commune made the bourgeois advertising phrase of "cheap government" a reality by destroying these institutions, which in fact constitute the major sources of expenditure.
 ##
