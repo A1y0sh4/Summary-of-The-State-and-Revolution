@@ -43,7 +43,7 @@ With regard to the anarchists, we recognize that the abolition of the state is i
 
 The anarchists want the state to be abolished even before the social conditions that gave birth to it have been destroyed. Either the anarchists do not understand what they are saying, or they understand it and are deliberately betraying the revolutionary movement of the proletariat.
 
-It is impossible to abolish the principle of authority before the extinction of the state. To want to abolish all hierarchies before defeating imperialism is to want to abolish modern industry; it means not being able to fight imperialism with the appropriate tools and therefore surrender to it right away.
+It is impossible to abolish the principle of authority before the extinction of the state. To want to abolish all hierarchies before imperialism is defeated, is to want to abolish modern industry; it means not being able to fight imperialism with the appropriate tools and therefore surrender to it right away.
 ##
 The bourgeois-democratic republic is the best form of government for capitalism because, under it, capital bases its power so firmly that no change of persons, institutions, or parties, can shake it.
 
