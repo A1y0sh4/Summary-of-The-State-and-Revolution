@@ -37,7 +37,7 @@ Repression is still necessary even after the socialist revolution, but, instead 
 ##
 The state will cease to exist when there is no longer any distinction between the members of society according to their relations to the means of production. Only then, will people gradually become accustomed to observing the elementary rules of civil coexistence without violence, without the need for a state.
 
-The state will become extinct when we have such a high degree of development that there will be no longer either the division of labour or the contrast between intellectual and physical labour, and labour will no longer be merely a necessary means of continuing to live, but will become the first necessity for the realization of everyone's own life.
+The state will become extinct when we have such a high degree of development that there will be no longer the division of labour and the contrast between intellectual and physical labour, and labour will no longer be merely a necessary means of continuing to live, but will become the first necessity for the realization of everyone's own life.
 ##
 With regard to the anarchists, we recognize that the abolition of the state is impossible until after the suppression of classes. For this to happen, the dictatorship of the oppressive class must be overthrown and the temporary dictatorship of the oppressed class must be established.
 
