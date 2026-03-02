@@ -45,11 +45,11 @@ The anarchists want the state to be abolished even before the social conditions 
 
 It is impossible to abolish the principle of authority before the extinction of the state. To want to abolish all hierarchies before imperialism is defeated, is to want to abolish modern industry; it means not being able to fight imperialism with the appropriate tools and therefore surrender to it right away.
 ##
-The bourgeois democratic republic is the best form of government for capitalism because, under it, capital bases its power so firmly that no change of persons, institutions, or parties, can shake it.
+The bourgeois democratic republic is the best form of government for capitalism because, under it, capital bases its power so firmly that no change of persons, institutions or parties can shake it.
 
 We are in favour of the democratic republic insofar as it is, under capitalism, the form of government where the exploitation of the proletariat is least bloody. But the fate reserved for the people, even in the most democratic of bourgeois republics, is still wage slavery.
 
-Freedom, in capitalist society, always resembles what it was in the republics of ancient Greece: freedom for slave owners. Today's wage slaves, because of capitalist exploitation, are so suffocated by want and misery that the majority of the population finds itself cut off from political and social life.
+Freedom, in capitalist society, always resembles what it was in the republics of ancient Greece: freedom for the slave owners. Today's wage slaves, because of capitalist exploitation, are so suffocated by want and misery that the majority of the population finds itself cut off from political and social life.
 ##
 We cannot conceive of a proletarian democracy without representative institutions and the principle of eligibility, but we can and must conceive of it without parliamentarism.
 
