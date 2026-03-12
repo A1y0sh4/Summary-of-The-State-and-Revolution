@@ -1,5 +1,5 @@
 # Summary of The State and Revolution
-As long as the great revolutionaries are alive, the ruling classes always reward them with incessant persecutions. As soon as they die, attempts are made to transform them into harmless icons to console and mystify the oppressed classes while emptying their doctrine of its revolutionary content. The bourgeoisie and the opportunists within the working-class movement are now plotting to subject Marxism to such treatment, distorting its revolutionary soul and exalting what seems acceptable to the bourgeoisie.
+As long as the great revolutionaries are alive, the ruling classes always reward them with incessant persecutions. As soon as they die, attempts are made to transform them into harmless icons to deceive and appease the oppressed classes while emptying their doctrine of its revolutionary content. The bourgeoisie and the opportunists within the working-class movement are now plotting to subject Marxism to such treatment, distorting its revolutionary soul and exalting what seems acceptable to the bourgeoisie.
 
 Since the distortions of Marxism have spread unprecedentedly, it is our task to re-establish Marx's true doctrine of the state.
 ##
