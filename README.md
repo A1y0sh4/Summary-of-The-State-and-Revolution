@@ -5,7 +5,7 @@ Since the distortions of Marxism have spread unprecedentedly, it is our task to 
 ##
 The discovery of agriculture and the urban revolution made possible the stable production of an economic surplus. Once this certain stage of development has been reached, society is divided into classes with irreconcilable economic interests; a class society is formed in which a small class of exploiters can systematically appropriate the labour-power of a large class of exploited. In order that the antagonistic classes may not destroy themselves and society in a sterile struggle, arises the necessity of a power which is, apparently, above society and which can therefore mitigate the conflict between the classes. This power is the state.
 
-The state is the product and manifestation of irreconcilable antagonisms between classes, and its presence is necessary to the extent that class antagonisms cannot be reconciled. If the reconciliation of classes were possible, the state could neither arise nor continue to exist.
+The state is the product and manifestation of irreconcilable antagonisms between classes and its presence is necessary to the extent that class antagonisms cannot be reconciled. If the reconciliation of classes were possible, the state could neither arise nor continue to exist.
 ##
 A state, whatever it is, is not free and is not a people's state.
 
