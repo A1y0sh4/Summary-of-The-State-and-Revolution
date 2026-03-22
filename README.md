@@ -43,7 +43,7 @@ With regard to the anarchists, we recognize that the abolition of the state is i
 
 The anarchists want the state to be abolished even before the social conditions that gave birth to it have been destroyed. Either the anarchists do not understand what they are saying, or they understand it and are deliberately betraying the revolutionary movement of the proletariat.
 
-It is impossible to abolish the principle of authority before the extinction of the state. To want to abolish all hierarchies before imperialism is defeated, is to want to abolish modern industry; it means not being able to fight imperialism with the appropriate tools and therefore surrender to it right away.
+It is impossible to abolish the principle of authority before the extinction of the state. To want to abolish all hierarchies before imperialism is defeated is to want to abolish modern industry; it means not being able to fight imperialism with the appropriate tools and therefore surrender to it right away.
 ##
 The bourgeois democratic republic is the best form of government for capitalism because, under it, capital bases its power so firmly that no change of persons, institutions or parties can shake it.
 
@@ -57,7 +57,7 @@ The way out of parliamentarism lies in transforming representative institutions 
 
 The Commune was not a parliamentary body, but an executive and legislative working body at the same time. Instead of deciding once every three or six years which member of the ruling class would oppress and misrepresent the people in parliament, universal suffrage was for the active benefit of the people constituted in communes. There was a transition from the indirect democracy of parliament to the direct democracy of the Commune.
 ##
-The transitional phase between capitalist society and communist society is socialism. In socialism, the means of production are no longer the private property of a few individuals, but instead belong to the whole society. After deducting the amount of work paid into social funds, each worker receives from society as much as he has given it.
+The transitional phase between capitalist society and communist society is socialism. In socialism, the means of production are no longer the private property of a few individuals, but instead belong to the whole society. After deducting the amount of work paid into social funds, each worker receives from society as much as he has given to it.
 
 In socialism there will still be injustices and differences of wealth, but the exploitation of man by man will no longer be possible. In socialism can be destroy the injustice constituted by the hoarding of the means of production by individuals, but not yet the injustice based on the distribution of consumer goods according to labour (and not according to needs).
 
