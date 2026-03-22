@@ -17,7 +17,7 @@ The state is the means by which the ruling class of a society exercises its dict
 
 Only those who recognize both the existence of the class struggle and the necessity of putting an end to class oppression by means of the revolutionary dictatorship of the proletariat, are Marxists.
 
-Today's rampant opportunism glosses over the question of class dictatorship and educates socialists in such a way as to make them only the representatives of the best-paid workers; in this way it deprives them of the theoretical foundations necessary to achieve the radical suppression of all exploitation.
+Today's rampant opportunism glosses over the question of class dictatorship and educates socialists in such a way as to make them only the representatives of the best-paid workers; in this way it deprives them of the theorical foundations necessary to achieve the radical suppression of all exploitation.
 ##
 Any state, in order to maintain itself, needs special detachments of armed men who, by profession, protect the interests of the ruling class and maintain firm its power. The task of the police forces is to supervise, repress and imprison those who rebel against their oppression and those among the individual members of the ruling class who are willing to help them.
 
