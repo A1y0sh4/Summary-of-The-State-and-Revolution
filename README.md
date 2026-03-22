@@ -69,7 +69,7 @@ Bourgeois law, like all law, presupposes inequality. In fact, every law consists
 
 The law, instead of being equal, should in fact be unequal.
 
-As long as the bourgeois state is not overthrown, a certain degree of bureaucratization of the functionaries of the revolutionary proletariat itself is inevitable. Under socialism functionaries will cease to be burocrats as parlamentary institutions will be replaces by Communes (Soviets) that will exercise at the same time executive and legislative functions.
+As long as the bourgeois state is not overthrown, a certain degree of bureaucratization of the functionaries of the revolutionary proletariat itself is inevitable. Under socialism, functionaries will cease to be burocrats as parlamentary institutions will be replaces by Communes (Soviets) that will exercise at the same time executive and legislative functions.
 ##
 After overthrowing the capitalists and bureaucrats, all citizens will become the workers of the socialist state: in turn everyone will govern it and then everyone will get used to making sure that no one governs; there will no longer be unemployment and consequently working hours will be reduced. The whole society will become a great office and a great factory with equality of work and wages. But this discipline is by no means our ideal or our final goal: it is only a necessary stage to facilitate the overthrow of the bourgeois states and to bring us closer to the withering away of the socialist states.
 
