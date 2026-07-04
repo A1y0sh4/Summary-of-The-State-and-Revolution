@@ -7,7 +7,7 @@ The discovery of agriculture and the urban revolution made possible the stable p
 
 The presence of the state is necessary as long as there are class antagonisms to be mitigated that cannot be reconciled. If the reconciliation of classes were possible, the state could neither arise nor continue to exist.
 ##
-A state, whatever it is, is not free and is not popular.
+A state, whatever it is, is not free and is not a people's state.
 
 A state is a particular organization of force intended to suppress a certain class. The exploiting classes need political domination for the maintenance of exploitation. The oppressed need it only to end exploitation and to repress the exploiters.
 
