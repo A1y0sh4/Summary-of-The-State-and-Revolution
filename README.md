@@ -3,7 +3,7 @@ As long as the great revolutionaries are alive, the ruling classes always reward
 
 Since the distortions of Marxism have spread unprecedentedly, it is our task to re-establish Marx's true doctrine of the state.
 ##
-The discovery of agriculture and the urban revolution made possible the stable production of an economic surplus. Once this certain stage of development has been reached, society is divided into classes with irreconcilable economic interests; a class society is formed in which a small class of exploiters can systematically appropriate the labour-power of a large class of exploited. In order that the antagonistic classes may not destroy themselves and society in a sterile struggle, it arises the necessity of a power which is, in appearance, above society and which can therefore mitigate the conflict between the classes. That power is the state.
+The discovery of agriculture and the urban revolution made possible the stable production of an economic surplus. Once this certain stage of development has been reached, society is divided into classes with irreconcilable economic interests; a class society is formed in which a small class of exploiters can systematically appropriate the labor-power of a large class of exploited. In order that the antagonistic classes may not destroy themselves and society in a sterile struggle, it arises the necessity of a power which is, in appearance, above society and which can therefore mitigate the conflict between the classes. That power is the state.
 
 The presence of the state is necessary as long as there are class antagonisms to be mitigated that cannot be reconciled. If the reconciliation of classes were possible, the state could neither arise nor continue to exist.
 ##
@@ -27,7 +27,7 @@ The Commune made the bourgeois advertising phrase of "cheap government" a realit
 ##
 The experience of the Paris Commune of 1871 has taught us that it is impossible to liberate the oppressed class without a violent revolution that destroys the apparatus of state power that serves the ruling class to keep it subjugated. A revolution is not a simple change of government: the subjugated class must overthrow the government with which the small class of oppressors satisfied its political needs to create one that instead fulfils those of the large oppressed class.
 
-The first decree of the Commune was the abolition of the standing army and its replacement by the entire revolutionary people in arms. The police, as well as any other branch of the administration, were immediately stripped of their political powers and were turned into an instrument revocable at any time. Public service had to be performed for the average wage of a good worker. The magistrates were stripped of their so-called independence and were made elected by universal suffrage, accountable to the people and immediately recallable.
+The first decree of the Commune was the abolition of the standing army and its replacement by the entire revolutionary people in arms. The police, as well as any other branch of the administration, were immediately stripped of their political powers and were turned into an instrument revocable at any time. Public service had to be performed for the average wage of a good worker. The magistrates were stripped of their sham independence and were made elected by universal suffrage, accountable to the people and immediately recallable.
 
 In order to abolish bureaucracy, careerism must be abolished, and it is necessary to prevent the attainment of very lucrative employment in banks and public limited companies through state employment.
 ##
@@ -37,7 +37,7 @@ Repression is still necessary even after the socialist revolution, but instead o
 ##
 The state will cease to exist when there is no longer any distinction between the members of society according to their relations to the means of production. Only then will people gradually become accustomed to observing the elementary rules of civil coexistence without violence, without the need for a state.
 
-The state will become extinct when we have such a high degree of development that there will be neither the division of labor nor the contrast between intellectual and physical labor, and labor will no longer be merely a necessary means of continuing to live, but will become the first necessity for the realization of one's life.
+The state will become extinct when we have such a high degree of development that there will be neither the division of labor nor the contrast between intellectual and physical labor, and labor will no longer be merely a necessary means of continuing to live, but will become the first necessity for the realization of one's own life.
 ##
 With regard to the anarchists, we recognize that the abolition of the state is impossible until after the suppression of classes. For this to happen, first the dictatorship of the oppressive class must be overthrown, and then the temporary dictatorship of the oppressed class must be established.
 
@@ -53,26 +53,26 @@ Freedom, in capitalist society, always resembles what it was in the republics of
 ##
 We cannot conceive of a proletarian democracy without representative institutions and the principle of eligibility, but we can and must conceive of it without parliamentarism.
 
-The way out of parliamentarism lies in transforming representative institutions from puppet theatres into bodies that actually work. In capitalist countries the real work of the state is carried out behind the scenes; And it is the ministries, the chancelleries, the general staffs that carry it out. In bourgeois parliaments there is nothing but gossip with the definite aim of deceiving ordinary people. Important decisions are made by the stock exchange and banks.
+The way out of parliamentarism lies in transforming representative institutions from puppet theatres into bodies that actually work. In capitalist countries the real work of the state is carried out behind the scenes; and it is the ministries, the chancelleries, the general staffs that carry it out. In bourgeois parliaments there is nothing but gossip with the definite aim of deceiving ordinary people. Important decisions are made by the stock exchange and the banks.
 
 The Commune was not a parliamentary body, but an executive and legislative working body at the same time. Instead of deciding once every three or six years which member of the ruling class should oppress and misrepresent the people in parliament, universal suffrage was for the active benefit of the people constituted in communes. There was a transition from the bourgeois democracy of parliament to the proletarian democracy of the Commune.
 ##
-The transitional phase between capitalist society and communist society is socialism. In socialism, the means of production are no longer the private property of a few individuals, but instead belong to the whole society. After deducting the amount of work paid into social funds, each worker receives from society as much as he has given it.
+The transitional phase between capitalist society and communist society is socialism. In socialism, the means of production are no longer the private property of a few individuals but instead belong to the whole society. After deducting the amount of work paid into social funds, each worker receives from society as much as he has given to it.
 
-In socialism there will still be injustices and differences of wealth, but the exploitation of man by man will no longer be possible. In socialism one can destroy the injustice constituted by the hoarding of the means of production by individuals, but one cannot yet destroy the injustice based on the distribution of consumer goods according to labor (and not according to needs).
+In socialism there will still be injustices and differences of wealth, but the exploitation of man by man will no longer be possible. In socialism one can destroy the injustice constituted by the hoarding of the means of production by few individuals, but one cannot yet destroy the injustice based on the distribution of consumer goods according to labor (and not according to needs).
 
 "He who does not work does not eat" and "At equal quantity of work, equal quantity of products" are the two principles that can be realized in socialism. But this is not yet communism: there is still bourgeois law which attributes to unequal people, and for a very unequal quantity of labour, an equal quantity of products.
 ##
 A partial permanence of bourgeois law in a state in which the bourgeoisie is no longer in power is an inevitable drawback in socialism, since it cannot be thought that men will learn, overnight, to work for society without any legal norms.
 
-Bourgeois law, like all law, presupposes inequality. In fact, every right consists in the application of a single rule to different people, who are neither identical nor identical.
+Bourgeois law, like all law, presupposes inequality. In fact, every right consists in the application of a single rule to different people, who are neither equal nor identical.
 
 The law, instead of being equal, should therefore be unequal.
 
 As long as the bourgeois state is not overthrown, a certain bureaucratization of the functionaries of the revolutionary proletariat itself is inevitable. But in a socialist economic regime, thus implementing the measures implemented by the Paris Commune, officials cease to be bureaucrats.
 ##
-After overthrowing the capitalists and bureaucrats, all citizens will become the workers of the socialist state: in turn everyone will govern it and then everyone will get used to making sure that no one governs; unemployment will be abolished and consequently working hours will be reduced. The whole society will be a great office and a great factory with equality of work and wages. But this iron discipline of labor is by no means our ideal or our final goal: it is only a necessary stage to facilitate the overthrow of the bourgeois states and to bring us closer to the withering away of the socialist states, or to put an end to the systematic forms of oppression.
+After overthrowing the capitalists and bureaucrats, all citizens will become the workers of the socialist state: in turn everyone will govern it and then everyone will get used to making sure that no one governs; unemployment will be abolished and consequently working hours will be reduced. The whole society will be a great office and a great factory with equality of work and wages. But this iron discipline of labor is by no means our ideal or our final goal: it is only a necessary stage to facilitate the overthrow of the bourgeois states and to bring us closer to the withering away of the socialist states, hence to put an end to the systematic forms of oppression.
 
-The State will be able to become completely extinct when society has realized the principle "Everyone gives according to his ability; each one receives according to his needs", that is, when men will have become so accustomed to observing the fundamental rules of social coexistence, and work will have become so productive that they will work voluntarily according to their abilities.
+The State will be able to become completely extinct when society has realized the principle "Everyone gives according to his ability; each one receives according to his needs", that is, when men will have become so accustomed to observing the fundamental rules of social coexistence, and work will have become so productive, that they will work voluntarily according to their abilities.
 
 From the bourgeois point of view it is easy to declare that such a social system is pure utopia. In fact, it has never occurred to any communist to promise the immediate advent of communism without first passing through socialism; this is because communism presupposes an incredibly higher productivity of labor than today.
