@@ -19,7 +19,7 @@ Only those who recognize both the existence of the class struggle and the necess
 
 Today's rampant opportunism glosses over the question of class dictatorship and educates socialists in such a way as to make them only the representatives of the best-paid workers; in this way it deprives them of the theoretical foundations necessary to achieve the radical suppression of all exploitation.
 ##
-A state, in order to maintain itself, needs special detachments of armed men who professionally protect the interests of the ruling class and maintain its power. The task of the police force is to supervise, repress and imprison those who rebel against their oppression and those among the individual members of the ruling class who are willing to help them.
+A state, in order to maintain itself, needs special detachments of armed men who professionally protect the interests of the ruling class and maintain firm its power. The task of the police force is to supervise, repress and imprison those who rebel against their oppression and those among the individual members of the ruling class who are willing to help them.
 
 Modern centralized state power appeared in the period of the bourgeois revolution in France. The most characteristic institutions of this state machine are the bureaucracy and the standing army. The working class learns to know them the hard way.
 
